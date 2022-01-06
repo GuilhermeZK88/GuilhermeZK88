@@ -4,6 +4,4 @@
 - 💞️ I’m looking to collaborate on my areas of interest
 - 📫 Reach me through guilhermezapelini@gmail.com
 
-<!---
-I was made aware of a very unfortunate coincidence, so just to be clear: I do not like or subscribe to extremist ideologies.
---->
+*I was made aware of a very unfortunate coincidence, so just to be clear: I do not like or subscribe to extremist ideologies.*
